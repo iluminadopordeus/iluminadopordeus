@@ -2,6 +2,7 @@
 - TENHO 17 ANOS 🥶 -
 - ESTUDO POR QUE PRECISO DE FORMAÇÃO 🥱
 - NÃO ESTOU TRABALHANDO, POIS NO MOMENTO SÓ DESEJO ESTUDAR
-- ESTOU FAZENDO ALURA.
+- ESTOU FAZENDO ALURA
+- E AGORA ESTOU INDO EMBORA DE MERCEDEZ
 
-![](https://media1.tenor.com/m/rweh-xPsyqMAAAAC/vaheed.gif)
+![](https://media1.tenor.com/m/rRQFGTU6FAMAAAAd/mercedes.gif)
